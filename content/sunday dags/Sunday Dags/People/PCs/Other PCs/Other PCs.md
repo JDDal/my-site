@@ -1,3 +1,3 @@
 - [[Stanislaus]] **(human, paladin/warlock)**
-- [[Avery]] (human? ranger)
+- [[Avery Mudgate]] (human? ranger)
 - [[Cardin Vorlen]] **(bunny-man, Monk - mercy)**

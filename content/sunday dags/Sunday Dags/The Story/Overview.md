@@ -1,4 +1,4 @@
-These notes document the adventures of  [[People/PCs/The Firebreathers|The Firebreathers]]
+These notes document the adventures of  [[The Firebreathers]]
 and [[The Rough Lads]] and [[Other PCs]]
 
 The Campaign takes place in and around the city of [[Caldera]]

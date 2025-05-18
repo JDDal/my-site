@@ -1,4 +1,4 @@
-Player - Justin D'Altorio
+Player - Justin D
 OG party - [[The Rough Lads]]
 
  Torg Lighteyes (Half Orc, Barbarian, Male)

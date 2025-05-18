@@ -1,4 +1,4 @@
-following the adventures of [[People/PCs/The Firebreathers|The Firebreathers]]
+following the adventures of [[The Firebreathers]]
 
 
 ------------------------------------------
@@ -368,7 +368,7 @@ At the 13th chalice
 			- [[Mr Bear]]
 			- [[Mr Book]]
 			- They know us by reputation
-			- They don't seem to be after [[People/PCs/The Firebreathers|The Firebreathers]]
+			- They don't seem to be after [[The Firebreathers]]
 				- seem to be more worried about the [[time assassin mages]]
 
 At the [[The Firebreather's Bed and Breakfast for Rough Lads]] 

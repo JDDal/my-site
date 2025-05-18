@@ -1,4 +1,4 @@
-Player - Justin D'Altorio
+Player - John T
 OG party - [[The Rough Lads]]
 
 

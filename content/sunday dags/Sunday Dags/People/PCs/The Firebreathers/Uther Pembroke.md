@@ -1,4 +1,4 @@
-Player - John Trask
+Player - John T
 OG party - [[The Firebreathers]]
 
 
