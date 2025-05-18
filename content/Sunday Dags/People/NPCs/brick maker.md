@@ -13,4 +13,4 @@ he was a novice at the [[Church of Venapathora]]
 							- then orcs showed up and performed some magic on the [[brick maker]]
 								- compelled him to stay put and sell [[wardstones]]
 						- he used to have a goblin assistant named [[Skratch]]
-					- calls a [[Beetle]] for  [[PCs]], then takes off Southbound
+					- calls a [[Beetle]] for  [[The Firebreathers]], then takes off Southbound

@@ -1,1 +1,1 @@
-Codeword to initiate combat/attack used initially by [[PCs]]
+Codeword to initiate combat/attack used initially by [[The Firebreathers]]

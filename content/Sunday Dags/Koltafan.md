@@ -4,4 +4,4 @@ struck a deal for release with [[Ennui Dabulamanzi]] to find information and whe
 
 immediately nearly killed [[Uther Pembroke]]
 
-did battle with [[PCs]] and was defeated
+did battle with [[The Firebreathers]] and was defeated

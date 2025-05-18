@@ -1,4 +1,5 @@
 [[Ennui Dabulamanzi]]
 [[Falkin Greenhand]]
+[[Lovia Stronglogger]]
 [[Uther Pembroke]]
 [[Zylen]]

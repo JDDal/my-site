@@ -1,7 +1,6 @@
 Player - Justin D'Altorio
-OG party - [[PCs]]
+OG party - [[The Firebreathers]]
 
-![[Pasted image 20250515103634.png]]
 
 Iados "Ennui" Dabulamanzi (male Tiefling warlock) is a librarian working for the [[Library of the Tattered Page]] alongside his mother [[Kali Dabulamanzi]] (human). Six years ago, his half brother [[Gregory Dabulamanzi]] and half sister [[Alma Dabulamanzi]] (both human) left the library to become adventurers after the death of their stepfather (and Ennui's tiefling father) [[Ezra Dabulamanzi]]. He was sent his sister's axe the [[Winter's Bite]] 2 months ago under mysterious circumstances
 

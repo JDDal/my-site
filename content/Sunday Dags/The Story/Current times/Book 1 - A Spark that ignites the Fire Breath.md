@@ -1,4 +1,5 @@
-following the adventures of [[PCs]]
+following the adventures of [[People/PCs/The Firebreathers|The Firebreathers]]
+
 
 ------------------------------------------
 
@@ -19,7 +20,7 @@ at The Willows
 - We learn that the [[Hack Saw Gang]] has moved in
 - We start some shit
 	- [[Zylen]] goes form 0-60 real quick by breathing fire and setting stuff ablaze
-		- Henceforth our party name is [[PCs]]
+		- Henceforth our party name is [[The Firebreathers]]
 	- [[Ennui Dabulamanzi]] kills some gangers (has icy [[Ennui's Visions|vision]] of a frozen passage)
 	- We win
 - Because we cast a lot of magic, a [[the Mages guild|Guild]] Mage shows up, tells us to register asap
@@ -367,7 +368,7 @@ At the 13th chalice
 			- [[Mr Bear]]
 			- [[Mr Book]]
 			- They know us by reputation
-			- They don't seem to be after [[PCs]]
+			- They don't seem to be after [[People/PCs/The Firebreathers|The Firebreathers]]
 				- seem to be more worried about the [[time assassin mages]]
 
 At the [[The Firebreather's Bed and Breakfast for Rough Lads]] 
@@ -398,7 +399,7 @@ Returning to [[The Firebreather's Bed and Breakfast for Rough Lads]]
 	- in the aftermath more [[the Mages guild]] mages show up
 		- [[Mr Smoke]] asks us about these assasins
 			- hes upset about their presence
-			- also wants one of [[PCs]] to join the guild
+			- also wants one of [[The Firebreathers]] to join the guild
 				- [[Ennui Dabulamanzi]] joins first
 					- the other casters in the party follow
 			- gives us details about [[Jacob Ivis]]
@@ -406,7 +407,7 @@ Returning to [[The Firebreather's Bed and Breakfast for Rough Lads]]
 				- [[Mr Grim]] was investigating him, but has gone out of contact with the guild
 					- Smoke thinks Grim is dead
 
-[[Mephistopheles]] teleports [[PCs]] N
+[[Mephistopheles]] teleports [[The Firebreathers]] N
 - on a cold, icy beach at dusk - arrive at a teleportation circle
 	- there are frozen corpses all around the circle
 	- the party heads N on a well worn path
@@ -439,7 +440,7 @@ Returning to [[The Firebreather's Bed and Breakfast for Rough Lads]]
 						- must be removed in a particular order, which Ivis knows
 				- tells the party to follow the path N, meet the [[brick maker]], wait for a [[Beetle]] to take us far N to the [[Wardstone Mines]]
 
-[[PCs]] head N to meet with the [[brick maker]]
+[[The Firebreathers]] head N to meet with the [[brick maker]]
 - 2 day journey until they come across a trading camp
 	- rough hewn cabins with thatched roofs
 	- a [[brick maker|tall, thin man]] stands in the middle of town

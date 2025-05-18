@@ -20,7 +20,7 @@ There are a ton of Gods and Spirits, but the Gods that seem to call the shots ar
 
 ## Notable Denizens
 [[the Mages guild]]
-[[PCs]]
+[[The Firebreathers]]
 [[The Rough Lads]]
 [[Chains]]
 [[Dr. Louise Bradley]]

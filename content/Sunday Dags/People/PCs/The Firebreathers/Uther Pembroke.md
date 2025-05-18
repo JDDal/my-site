@@ -1,7 +1,6 @@
 Player - John Trask
-OG party - [[PCs]]
+OG party - [[The Firebreathers]]
 
-![[Pasted image 20250515111254.png]]
 
 Uther Pembroke (½ elf, Bard) is the bastard son of [[Waldur Pembroke]] of the [[noble house of Pembroke]]. Being that he is a bastard, he has enjoyed a life of luxury as a ward of the house and has recently found out that although he bears the name of his father, he isn’t entitled to any inheritance or rights under his name. [[Unnamed Uther's mother|His mother]], an elf servant of the house of Pembroke, died giving birth to him. He squanders his monthly allowance in upscale brothels in [[Caldera]] and eeks by on his astonishing musical and storytelling talents when he runs low on funds.  
 

@@ -4,4 +4,4 @@ was raising undead in the crypts underneath [[Bertrand Rothhill]]'s manor in [[T
  - had been hired by [[Noble House of Baramore]]
  - he in turn hired [[Hack Saw Gang]]
 
-killed by [[PCs]]
+killed by [[The Firebreathers]]

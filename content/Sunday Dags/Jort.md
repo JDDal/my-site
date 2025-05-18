@@ -4,4 +4,4 @@ was dosed with the [[drug]] by [[The Herald]]
 
 had been working to produce it nonstop ever since
 
-was killed by [[PCs]]
+was killed by [[The Firebreathers]]

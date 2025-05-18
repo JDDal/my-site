@@ -1,5 +1,5 @@
 following the adventures of the now combined parties
-[[PCs]] and [[The Rough Lads]]
+[[The Firebreathers]] and [[The Rough Lads]]
 
 ------------------------------------------
 
@@ -338,7 +338,7 @@ Within [[Skyreach]]
 		- off in the distance [[Kolten]] notices a large shape slowly moving north
 			- it is a [[Beetle]]
 				- [[The Rough Lads]] travel towards it and intercept
-				- being piloted by [[PCs]]
+				- being piloted by [[The Firebreathers]]
 					- the parties merge
 
 

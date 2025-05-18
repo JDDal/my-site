@@ -1,7 +1,7 @@
 Player - Matty
-OG party - [[PCs]]
+OG party - [[The Firebreathers]]
 
-![[Pasted image 20250515110919.png]]
+
 
 Zylen hails from the shattered red dragonborn tribes of the [[Varelian Crags]], found far to the north of [[Caldera]]. The once proud dragonborn tribes that were lauded in legend and feared by all, have long declined into itinerant bands that roam the alpine valleys of the Crags. Zylen’s tribe adheres to the [[Rite of the Magma Talon]]
 

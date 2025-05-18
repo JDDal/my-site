@@ -1,5 +1,5 @@
 player - Andy Keller
-OG party - [[PCs]]
+OG party - [[The Firebreathers]]
 
 Falkin Greenhand is a Halfling Thief that grew up in a straight-laced up and coming family with aspirations of nobility in [[Caldera]]. Despite his family's best efforts, doing things the "honorable" way never appealed to him. They tried to steer him right and include him in the family business, naively overlooking his shortcomings.  However, he took shortcuts and tried to cheat their business partners with every opportunity he was given. Almost more destructive to the family were his habits handling money. Always seeking to be the life of the party, gambling and drinking the night away, Falkin believed that if he awoke with coin remaining in his pocket the night was a failure. When his family's modest salary could not satisfy his desires he took to skimming off and ultimately depleting his family's coffers. Finally deciding they'd had enough Falkin was forced to denounce his family's name in shame and disgrace. He gave himself the surname 'Greenhand' with full belief he could turn a profit in any business venture... if only his family could try things his way.
 
