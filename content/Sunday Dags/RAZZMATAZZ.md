@@ -1,0 +1,1 @@
+Codeword to initiate combat/attack used initially by [[PCs]]

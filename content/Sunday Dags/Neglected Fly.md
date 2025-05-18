@@ -1,0 +1,1 @@
+A seedy bar in the city of [[Caldera]]

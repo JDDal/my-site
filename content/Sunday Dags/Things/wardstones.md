@@ -1,0 +1,1 @@
+Large stones present in citieaws and farms that protect them from certain types of monsters

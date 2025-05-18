@@ -1,0 +1,1 @@
+an elf servant of the house of [[noble house of Pembroke|Pembroke]], died giving birth to [[Uther Pembroke]]

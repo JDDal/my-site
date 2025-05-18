@@ -1,0 +1,1 @@
+a bar located in the city of [[Caldera]]

@@ -1,0 +1,1 @@
+Mysterious magical axe belonging to [[Ennui Dabulamanzi]], it used to be in the posession of his sister [[Alma Dabulamanzi]]
