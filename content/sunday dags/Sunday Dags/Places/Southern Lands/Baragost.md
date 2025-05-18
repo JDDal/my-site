@@ -1,0 +1,1 @@
+a town along the railway between [[The Gold Tower]] and [[Greenest]]

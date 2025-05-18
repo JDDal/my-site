@@ -1,1 +1,0 @@
-a bar in [[The Gold Tower]]

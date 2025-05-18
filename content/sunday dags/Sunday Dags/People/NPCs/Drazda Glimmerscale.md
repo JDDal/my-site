@@ -1,0 +1,1 @@
+lizardfolk prophet to [[Kazuk Snapjaw]] and the rest of the 

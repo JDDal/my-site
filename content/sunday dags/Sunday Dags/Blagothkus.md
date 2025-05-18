@@ -1,0 +1,2 @@
+deceased, cloud giant who was flying [[Skyreach]]
+he is helping [[The Cult of the Dragon]] in hopes that a resurgence of Dragons will cause the other Cloud Giants to stop being lazy and fight them (leading to their own resurgence)
